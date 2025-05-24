@@ -1,2 +1,0 @@
-# tonhk-website
-TonHK NFT
